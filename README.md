@@ -20,7 +20,7 @@ If your project is kind, creative, or curious —
 > drop a message via  
 > [GitHub](https://github.com/priyaspalaniappan)  
 > or  
-> [LinkedIn](https://www.linkedin.com/in/priya-palaniappan-590b842b3/) 🕊️  
+> [LinkedIn](www.linkedin.com/in/priyakalyani-palaniappan-590b842b3) 🕊️  
 
 ---
 
